@@ -1,1 +1,0 @@
-# lawendy.github.io
